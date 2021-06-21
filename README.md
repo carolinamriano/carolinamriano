@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carolinamriano
-- sou iniciate nisso, então por favor tenha paciencia!
+- sou iniciante nisso, então por favor tenha paciencia!
 
 
 <!---
